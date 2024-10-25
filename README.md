@@ -1,4 +1,5 @@
-- Illustrator and software developer 
+- Illustrator and software developer.
+- MCAD 2024
 - she/they
 - Contact me at Kaichai444@gmail.com
 
